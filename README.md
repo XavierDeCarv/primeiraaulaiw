@@ -1,2 +1,0 @@
-# primeiraaulaiw
-primeiraaulaiw
